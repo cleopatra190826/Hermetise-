@@ -1,4 +1,4 @@
-# 這是《Hermetise Profession Esthetics Center 美學護膚中心 線上預約登記優惠內容管理規範》的隱私權條款範本
+# 這是《Hermetise Profession Esthetics Center 美學護膚中心 網路預約登記優惠內容管理規範》的隱私權條款
 一、隱私權保護政策的適用範圍
 請說明該網站隱私權保護政策的適用範圍。
 
